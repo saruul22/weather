@@ -1,1 +1,1 @@
-Namkhai bichlee (11.5)
+Namkhai bichlee
